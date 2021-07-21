@@ -1,2 +1,0 @@
-# REALME
-MY PHONE
